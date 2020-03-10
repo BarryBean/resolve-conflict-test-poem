@@ -14,7 +14,7 @@
 
 * you are my one and only.
 * you stop me from Being so lonely.
-* We plan our future as if we have a Clue.
+* We plan our future as if we have a ClUE.
 * I never want to lose you.
 * I want you to Be my husBand, and I want to Be your wife.
 * I want to Be with you for the rest of my life.
